@@ -1,1 +1,1 @@
-[{"اینترنت رایگان":"کرونا"}]
+http://s12.picofile.com/file/8404587642/Screenshot_%DB%B2%DB%B0%DB%B2%DB%B0_%DB%B0%DB%B8_%DB%B0%DB%B2_%DB%B0%DB%B7_%DB%B3%DB%B8_%DB%B1%DB%B2.png
